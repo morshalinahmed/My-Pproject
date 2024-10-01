@@ -1,2 +1,2 @@
 # My-Project
-ubdate beting side plan page
+update beting side plan page
